@@ -4,6 +4,14 @@
 
 <br>
 
+The exact number of women to whom he was sealed in his lifetime is unknown because the evidence is fragmentary. 
+
+[Footnote 24] **Careful estimates put the number between 30 and 40**
+
+-- [Gospel Topics Essay - Plural Marriage in Kirtland and Nauvoo](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/plural-marriage-in-kirtland-and-nauvoo)
+
+<br>
+
 The youngest was Helen Mar Kimball, daughter of Joseph’s close friends Heber C. and Vilate Murray Kimball, who was sealed to Joseph **several months before her 15th birthday**.
 
 -- [Gospel Topics Essay - Plural Marriage in Kirtland and Nauvoo](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/plural-marriage-in-kirtland-and-nauvoo)
@@ -11,14 +19,6 @@ The youngest was Helen Mar Kimball, daughter of Joseph’s close friends Heber C
 <br>
 
 Following his marriage to Louisa Beaman and before he married other single women, Joseph Smith was sealed to a number of women **who were already married**.
-
--- [Gospel Topics Essay - Plural Marriage in Kirtland and Nauvoo](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/plural-marriage-in-kirtland-and-nauvoo)
-
-<br>
-
-The exact number of women to whom he was sealed in his lifetime is unknown because the evidence is fragmentary. 
-
-[Footnote 24] **Careful estimates put the number between 30 and 40**
 
 -- [Gospel Topics Essay - Plural Marriage in Kirtland and Nauvoo](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/plural-marriage-in-kirtland-and-nauvoo)
 
@@ -232,11 +232,11 @@ Twenty-one-year-old Emma Hale first heard about Joseph Smith when he came to wor
 
 <br>
 
-In 1826, Josiah Stowell **hired** Joseph Smith to help look for lost Spanish silver near the border of New York and Pennsylvania. Someone in the community, possibly a member of Stowell’s extended family, accused Joseph of gazing into a stone to discover lost property. As a result, Joseph was ordered to appear before justice of the peace Albert Neely in Chenango County, likely on charges of disorderly conduct. His arrest appears to have been based on a statute in New York state law outlawing “pretending . . . to discover where lost goods may be found.” Four accounts describe this hearing, all of which suggest Joseph suffered no serious legal consequences in its aftermath. Other details vary and sometimes contradict each other.
+In 1826, Josiah Stowell hired Joseph Smith to help look for lost Spanish silver near the border of New York and Pennsylvania. Someone in the community, possibly a member of Stowell’s extended family, accused Joseph of gazing into a stone to discover lost property. As a result, Joseph was ordered to appear before justice of the peace Albert Neely in Chenango County, likely on charges of disorderly conduct. His arrest appears to have been based on a statute in New York state law outlawing “pretending . . . to discover where lost goods may be found.” Four accounts describe this hearing, all of which suggest Joseph suffered no serious legal consequences in its aftermath. Other details vary and sometimes contradict each other.
 
 In his testimony, **Joseph readily agreed he had used his seer stone off and on to look for lost property**, but he had given up the practice—it hurt his eyes, he said. He had never solicited such work and “had always rather declined having anything to do with this business.” The judge inspected the stone and questioned other witnesses, including Joseph’s father, Joseph Smith Sr., and Joseph’s employer, Josiah Stowell.
 
-Joseph Sr. and Josiah Stowell testified that Joseph had responded to requests to use his seer stone only to assist friends or, in Stowell’s case, to help Stowell and **other contracted workers** on a treasure dig. Stowell trusted Joseph and appreciated his work. Joseph Sr. hoped his son would not abuse the gift in searching for earthly treasures and prayed God would reveal His will to the young man. Some other witnesses who testified believed in Joseph’s skill; others did not.
+Joseph Sr. and Josiah Stowell testified that Joseph had responded to requests to use his seer stone only to assist friends or, in Stowell’s case, to help Stowell and other contracted workers on a treasure dig. Stowell trusted Joseph and appreciated his work. Joseph Sr. hoped his son would not abuse the gift in searching for earthly treasures and prayed God would reveal His will to the young man. Some other witnesses who testified believed in Joseph’s skill; others did not.
 
 The outcome of the hearing remains a puzzle. **A purported court record indicates the judge found Joseph guilty.** A neighbor of Josiah Stowell claimed the court “condemned” Joseph but allowed him to escape on account of his youth. A friend of the judge who claimed to have taken notes at the hearing wrote that the judge accepted Stowell’s testimony and discharged Joseph. Oliver Cowdery, who did not attend the hearing (he met Joseph Smith about three years later), mentioned the most likely result in light of missing documentation, that Joseph was acquitted of being a disorderly person.
 
@@ -271,4 +271,71 @@ And he spake unto me, saying, “Joseph, my son, **thy sins are forgiven thee**.
 -- [Circa Summer 1832 History](https://www.churchofjesuschrist.org/study/manual/first-vision-accounts/1832-account)
 
 <br>
+
+## Word of Wisdom
+
+<br>
+
+2 To be sent greeting; **not by commandment or constraint**, but by revelation and the word of wisdom, showing forth the order and will of God in the temporal salvation of all saints in the last days
+
+-- [Doctrine & Covenants 89:2](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/89?lang=eng&verses=2)
+
+
+<br>
+
+17 Nevertheless, wheat for man, and corn for the ox, and oats for the horse, and rye for the fowls and for swine, and for all beasts of the field, and **barley for all useful animals, and for mild drinks**, as also other grain.
+
+-- [Doctrine & Covenants 89:17](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/89?lang=eng&verses=17#17)
+
+<br>
+
+The revelation had been declared **not as a commandment** but as a caution. Many people would find it hard to give up using these powerful substances, and **Joseph did not insist on strict conformity. He continued to drink alcohol occasionally, and he and Emma sometimes drank coffee and tea**.
+
+-- [Saints, Volume 1 - Chapter 15](https://www.churchofjesuschrist.org/study/history/saints-v1/15-holy-places)
+
+<br>
+
+18 Yea, **all things which come of the earth, in the season thereof, are made for the benefit and the use of man**, both to please the eye and to gladden the heart;
+
+19 Yea, for food and for raiment, for taste and for smell, to strengthen the body and to enliven the soul.
+
+20 And it pleaseth God that he hath given all these things unto man; for unto this end were they made to be used, with judgment, not to excess, neither by extortion.
+
+-- [Doctrine & Covenants 59:18-20](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/59?lang=eng&verses=18-20#18)
+
+<br>
+
+18 And he saith unto them, Are ye so without understanding also? Do ye not perceive, that **whatsoever thing from without entereth into the man, it cannot defile him;**
+
+19 **Because it entereth not into his heart, but into the belly**, and goeth out into the draught, purging all meats?
+
+20 And he said, **That which cometh out of the man, that defileth the man.**
+
+21 For from within, out of the heart of men, proceed evil thoughts, adulteries, fornications, murders,
+
+22 Thefts, covetousness, wickedness, deceit, lasciviousness, an evil eye, blasphemy, pride, foolishness:
+
+23 All these evil things come from within, and defile the man.
+
+-- [Mark 7:19-23](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/7?lang=eng&verses=19-23#19)
+
+<br>
+
+19 The Son of man came eating and **drinking**, and they say, Behold a man gluttonous, and a **winebibber**, a friend of publicans and sinners. But wisdom is justified of her children.
+
+-- [Matthew 11:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11?lang=eng&verses=19#19)
+
+<br>
+
+7 Jesus saith unto them, Fill the waterpots with water. And they filled them up to the brim.
+
+8 And he saith unto them, Draw out now, and bear unto the governor of the feast. And they bare it.
+
+9 When the ruler of the feast had tasted **the water that was made wine**, and knew not whence it was: (but the servants which drew the water knew;) the governor of the feast called the bridegroom,
+
+10 And saith unto him, Every man at the beginning doth set forth good wine; and when men have well drunk, then that which is worse: **but thou hast kept the good wine until now**.
+
+11 This beginning of miracles did Jesus in Cana of Galilee, and manifested forth his glory; and his disciples believed on him.
+
+-- [John 2:7-11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/2?lang=eng&verses=7-11#7)
 
