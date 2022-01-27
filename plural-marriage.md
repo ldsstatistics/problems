@@ -28,9 +28,13 @@ Torn between the Lord’s mandate to practice plural marriage and Emma’s oppos
 
 <br>
 
+52 And let mine handmaid, Emma Smith, receive all those that have been **given unto** my servant Joseph, and who are virtuous and pure before me; and those who are not pure, and have said they were pure, **shall be destroyed**, saith the Lord God.
+
+53 For I am the Lord thy God, and ye shall obey my voice; and I give unto my servant Joseph that he shall be made ruler over many things; for he hath been faithful over a few things, and from henceforth I will strengthen him.
+
 54 And I command mine handmaid, Emma Smith, to abide and cleave unto my servant Joseph, and to none else. But if she will not abide this commandment **she shall be destroyed**, saith the Lord; for **I am the Lord thy God, and will destroy her if she abide not in my law**.
 
--- [Doctrine & Covenants 132:54](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/132?lang=eng&verses=54#54)
+-- [Doctrine & Covenants 132:52-54](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/132?lang=eng&verses=52-54#52)
 
 <br>
 
@@ -38,19 +42,25 @@ Torn between the Lord’s mandate to practice plural marriage and Emma’s oppos
 
 62 And if **he have ten virgins given unto him** by this law, he cannot commit adultery, for **they belong to him**, and they are **given unto him**; therefore is he justified.
 
--- [Doctrine & Covenants 132:61-62](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/132?lang=eng&verses=61-62#61)
-
-<br>
+63 But if one or either of the ten virgins, after she is espoused, shall be with another man, she has committed adultery, and **shall be destroyed**; for **they are given unto him** to multiply and replenish the earth, according to my commandment, and to fulfil the promise which was given by my Father before the foundation of the world, and for their exaltation in the eternal worlds, that they may bear the souls of men; for herein is the work of my Father continued, that he may be glorified.
 
 64 And again, verily, verily, I say unto you, if any man have a wife, who holds the keys of this power, and he teaches unto her the law of my priesthood, as pertaining to these things, then shall she believe and administer unto him, **or she shall be destroyed, saith the Lord your God; for I will destroy her**; for I will magnify my name upon all those who receive and abide in my law.
 
--- [Doctrine & Covenants 132:64](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/132?lang=eng&verses=64#64)
+65 Therefore, it shall be lawful in me, **if she receive not this law**, for him to receive all things whatsoever I, the Lord his God, will give unto him, because she did not believe and administer unto him according to my word; and **she then becomes the transgressor; and he is exempt from the law of Sarah**, who administered unto Abraham according to the law when I commanded Abraham to take Hagar to wife.
+
+-- [Doctrine & Covenants 132:61-65](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/132?lang=eng&verses=61-65#61)
 
 <br>
 
 After Joseph’s death, many of his plural wives were sealed to other Church leaders for this life only, including Zina, **who was sealed to Brigham Young in 1846 while still civilly married to Henry**.
 
 -- [Church History Topics - Zina D. H. Jacobs Young](https://www.churchofjesuschrist.org/study/history/topics/zina-d-h-young)
+
+<br>
+
+Toward the end of his life, Brigham was widely known as the father of a large plural family. He was sealed to **over 50** women, many but not all of whom lived with him. Some likely understood their sealing to Brigham as having spiritual rather than domestic significance. Brigham and 16 of his wives had a total of 56 children.
+
+-- [Church History Topics - Brigham Young](https://churchofjesuschrist.org/study/history/topics/brigham-young)
 
 <br>
 

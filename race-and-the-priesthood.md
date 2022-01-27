@@ -2,31 +2,29 @@
 
 <br>
 
-Like other groups of Christians at this time, however, **many white Saints wrongly viewed black people as inferior**, believing that black skin was the result of God’s curse on the biblical figures Cain and Ham. Some had even begun to teach the false idea that black skin was evidence of a person’s unrighteous actions in the premortal life.
+Despite this modern reality, **for much of its history—from the mid-1800s until 1978—the Church did not ordain men of black African descent to its priesthood or allow black men or women to participate in temple endowment or sealing ordinances**.
+
+-- [Gospel Topics Essay - Race and the Priesthood](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/race-and-the-priesthood)
+
+<br>
+
+**In 1852, President Brigham Young publicly announced that men of black African descent could no longer be ordained to the priesthood**, though thereafter blacks continued to join the Church through baptism and receiving the gift of the Holy Ghost. Following the death of Brigham Young, **subsequent Church presidents restricted blacks from receiving the temple endowment or being married in the temple**. Over time, Church leaders and members advanced many theories to explain the priesthood and temple restrictions. None of these explanations is accepted today as the official doctrine of the Church.
+
+-- [Gospel Topics Essay - Race and the Priesthood](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/race-and-the-priesthood)
+
+<br>
+
+The **curse of Cain** was often put forward as justification for the priesthood and temple restrictions. Around the turn of the century, another explanation gained currency: **blacks were said to have been less than fully valiant in the premortal battle against Lucifer** and, as a consequence, were restricted from priesthood and temple blessings.
+
+-- [Gospel Topics Essay - Race and the Priesthood](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/race-and-the-priesthood)
+
+<br>
+
+Like other groups of Christians at this time, however, **many white Saints wrongly viewed black people as inferior, believing that black skin was the result of God’s curse on the biblical figures Cain and Ham. Some had even begun to teach the false idea that black skin was evidence of a person’s unrighteous actions in the premortal life.**
 
 **Brigham Young shared some of these views**, but before leaving Winter Quarters, he had also told a mixed-race Saint that all people were alike unto God. “Of one blood has God made all flesh,” he had said. “We don’t care about the color.”
 
 -- [Saints, Volume 2: Chapter 5](https://www.churchofjesuschrist.org/study/history/saints-v2/part-1/05-bowed-down-to-the-grave)
-
-<br>
-
-In 1850, the U.S. Congress created Utah Territory, and the U.S. president appointed Brigham Young to the position of territorial governor. Southerners who had converted to the Church and migrated to Utah with their slaves raised the question of slavery’s legal status in the territory. In two speeches delivered before the Utah territorial legislature in January and February 1852, **Brigham Young announced a policy restricting men of black African descent from priesthood ordination**. At the same time, President Young said that at some future day, black Church members would “have [all] the privilege and more” enjoyed by other members.
-
-The justifications for this restriction echoed the widespread ideas about racial inferiority that had been used to argue for the **legalization of black “servitude” in the Territory of Utah**. According to one view, which had been promulgated in the United States from at least the 1730s, blacks descended from the same lineage as the biblical Cain, who slew his brother Abel. Those who accepted this view believed that God’s “curse” on Cain was the mark of a dark skin. Black servitude was sometimes viewed as a second curse placed upon Noah’s grandson Canaan as a result of Ham’s indiscretion toward his father. Although slavery was not a significant factor in Utah’s economy and was soon abolished, the restriction on priesthood ordinations remained.
-
--- [Gospel Topics Essay - Race and the Priesthood](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/race-and-the-priesthood)
-
-<br>
-
-Following the death of Brigham Young, **subsequent Church presidents restricted blacks from receiving the temple endowment or being married in the temple**. Over time, Church leaders and members advanced many theories to explain the priesthood and temple restrictions. None of these explanations is accepted today as the official doctrine of the Church.
-
--- [Gospel Topics Essay - Race and the Priesthood](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/race-and-the-priesthood)
-
-<br>
-
-The **curse of Cain** was often put forward as justification for the priesthood and temple restrictions. Around the turn of the century, another explanation gained currency: **blacks were said to have been less than fully valiant** in the premortal battle against Lucifer and, **as a consequence, were restricted from priesthood and temple blessings**.
-
--- [Gospel Topics Essay - Race and the Priesthood](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/race-and-the-priesthood)
 
 <br>
 
@@ -52,7 +50,7 @@ The **curse of Cain** was often put forward as justification for the priesthood 
 
 <br> 
 
-Today, **the Church disavows the theories advanced in the past** that black skin is a sign of divine disfavor or curse, or that it reflects unrighteous actions in a premortal life; that mixed-race marriages are a sin; or that blacks or people of any other race or ethnicity are inferior in any way to anyone else.
+Today, **the Church disavows the theories advanced in the past that black skin is a sign of divine disfavor or curse**, or that it reflects unrighteous actions in a premortal life; that mixed-race marriages are a sin; or that blacks or people of any other race or ethnicity are inferior in any way to anyone else.
 
 -- [Gospel Topics Essay - Race and the Priesthood](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/race-and-the-priesthood)
 
@@ -63,3 +61,33 @@ Between 1884 and 1904, Jane periodically contacted Church leaders—John Taylor,
 -- [Church History Topics - Jane Elizabeth Manning James](https://www.churchofjesuschrist.org/study/history/topics/jane-elizabeth-manning-james)
 
 <br>
+
+In 1852, Church leaders serving in Utah’s legislature debated what to do about black slavery in Utah Territory. **Brigham Young and Orson Spencer spoke in favor of legalizing and regulating slavery**, allowing enslaved men and women to be brought to the territory but prohibiting the enslavement of their descendants and requiring their consent before any move.
+
+-- [Church History Topics - Slavery and Abolition](https://www.churchofjesuschrist.org/study/history/topics/slavery-and-abolition)
+
+<br>
+
+23 The land of Egypt being first discovered by a woman, who was the daughter of Ham, and the daughter of Egyptus, which in the Chaldean signifies Egypt, which signifies that which is forbidden;
+
+24 When this woman discovered the land it was under water, who afterward settled her sons in it; and thus, **from Ham, sprang that race which preserved the curse** in the land.
+
+25 Now the first government of Egypt was established by Pharaoh, the eldest son of Egyptus, the daughter of Ham, and it was after the manner of the government of Ham, which was patriarchal.
+
+26 Pharaoh, being a righteous man, established his kingdom and judged his people wisely and justly all his days, seeking earnestly to imitate that order established by the fathers in the first generations, in the days of the first patriarchal reign, even in the reign of Adam, and also of Noah, his father, who blessed him with the blessings of the earth, and with the blessings of wisdom, but **cursed him as pertaining to the Priesthood**.
+
+27 Now, Pharaoh being of that lineage by which he could not have the right of Priesthood, notwithstanding the Pharaohs would fain claim it from Noah, through Ham, therefore my father was led away by their idolatry;
+
+-- [Abraham 1:23-27](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1?verses=23-27#23)
+
+<br>
+
+8 For behold, the Lord shall curse the land with much heat, and the barrenness thereof shall go forth forever; and **there was a blackness came upon all the children of Canaan, that they were despised among all people**.
+
+-- [Moses 7:8](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7?verses=8#8)
+
+<br>
+
+22 And Enoch also beheld the residue of the people which were the sons of Adam; and they were a mixture of all the seed of Adam save it was the seed of Cain, **for the seed of Cain were black, and had not place among them**.
+
+-- [Moses 7:22](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7?verses=22#22)
