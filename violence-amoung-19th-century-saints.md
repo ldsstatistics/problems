@@ -1,0 +1,51 @@
+## Violence Amoung 19th Century Saints
+
+<br>
+
+At the Latter-day Saint settlement of Far West, some leaders and members organized a paramilitary group known as the Danites, whose objective was to defend the community against dissident and excommunicated Latter-day Saints as well as other Missourians. Historians generally concur that Joseph Smith approved of the Danites but that he probably was not briefed on all their plans and likely did not sanction the full range of their activities. Danites intimidated Church dissenters and other Missourians; for instance, they warned some dissenters to leave Caldwell County. During the fall of 1838, as tensions escalated during what is now known as the Mormon Missouri War, the Danites were apparently absorbed into militias largely composed of Latter-day Saints. These militias clashed with their Missouri opponents, leading to a few fatalities on both sides. In addition, Mormon vigilantes, including many Danites, raided two towns believed to be centers of anti-Mormon activity, burning homes and stealing goods. Though the existence of the Danites was short-lived, it resulted in a longstanding and much-embellished myth about a secret society of Mormon vigilantes.
+
+-- [Gospel Topics Essay - Peace and Violence among 19th-Century Latter-day Saints](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/peace-and-violence-among-19th-century-latter-day-saints)
+
+<br>
+
+Like other settlers in frontier areas, Latter-day Saints occupied areas already inhabited by American Indians. The tragic history of the annihilation of many Indian tribes and the devastation of others at the hands of European immigrant settlers and the United States military and political apparatus has been well documented by historians. Settlers throughout the 19th century, including some Latter-day Saints, mistreated and killed Indians in numerous conflicts, forcing them off desirable lands and onto reservations.
+
+-- [Gospel Topics Essay - Peace and Violence among 19th-Century Latter-day Saints](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/peace-and-violence-among-19th-century-latter-day-saints)
+
+<br>
+
+In late 1849, tensions between Ute Indians and Mormons in Utah Valley escalated after a Mormon killed a Ute known as Old Bishop, whom he accused of stealing his shirt. The Mormon and two associates then hid the victim’s body in the Provo River. Details of the murder were likely withheld, at least initially, from Brigham Young and other Church leaders. Settlers at Fort Utah did, however, report other difficulties with the Indians, including the firing of weapons at settlers and the theft of livestock and crops. Brigham Young counseled patience, telling them to “stockade your fort, to attend to your own affairs and let the indiens take care of theirs.” Nevertheless, tensions mounted at Fort Utah, in part because local Mormons refused to turn over those involved in the murder of Old Bishop to the Utes or to pay reparations for his death. In the winter of 1849–1850, a measles epidemic spread from the Mormon settlers to the Ute camps, killing many Indians and heightening tensions. At a council of Church leaders in Salt Lake City on January 31, 1850, the leader of Fort Utah reported that the Utes’ actions and intentions were growing increasingly aggressive: “they say they mean to hunt our Cattle. & go & get the other Indians to kill us.” In response, Governor Young authorized a campaign against the Utes. A series of battles in February 1850 resulted in the deaths of dozens of Utes and one Mormon. In these instances and others, some Latter-day Saints committed excessive violence against native peoples.
+
+-- [Gospel Topics Essay - Peace and Violence among 19th-Century Latter-day Saints](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/peace-and-violence-among-19th-century-latter-day-saints)
+
+<br>
+
+At times, Brigham Young, Jedediah Grant, and other leaders had warned against dissenters and apostates. Drawing on biblical passages, particularly in the Old Testament, these leaders had also taught that some sins were so evil that forgiveness could only come from the sinner’s blood being shed.
+
+-- [Church History Topics - Reformation of 1856–57](https://www.churchofjesuschrist.org/study/history/topics/reformation-of-1856-57)
+
+<br>
+
+**Mountain Meadows Massacre**
+
+In September 1857, a branch of territorial militia in southern Utah composed entirely of Latter-day Saints, along with some American Indians they recruited, laid siege to a wagon train of emigrants traveling from Arkansas to California. The militiamen carried out a deliberate massacre, killing 120 men, women, and children in a valley known as Mountain Meadows. Only 17 small children—those believed to be too young to be able to tell what had happened there—were spared. This event is perhaps the most tragic episode in the history of the Church.
+
+The arrival of the wagon train in Utah Territory occurred in the midst of a period of “reformation” within the Church. Concerned about spiritual complacency, Brigham Young and other Church leaders delivered a series of sermons in which they called the Saints to repent and renew their spiritual commitments. At times during the reformation, Brigham Young, his counselor Jedediah M. Grant, and other leaders preached with fiery rhetoric, warning against the evils of sin and those who dissented from or opposed the Church. Such preaching led to increased strain between the Latter-day Saints and their relative few neighbors in Utah, including federally appointed officials.
+
+This tension intensified in early 1857 when United States president James Buchanan received reports from some of the federal officials in Utah alleging that Governor Brigham Young and the Latter-day Saints in the territory were rebelling against the authority of the federal government. A strongly worded memorial from the Utah legislature (composed predominantly of Latter-day Saints) to the federal government convinced federal officials the reports were true. President Buchanan decided to replace Brigham Young as governor and, in what became known as the Utah War, sent an army to Utah to escort his replacement.
+
+Latter-day Saints feared that the oncoming army—some 1,500 troops, with more to follow—would renew the depredations of Missouri and Illinois and again drive the Saints from their homes. In addition, Parley P. Pratt, a member of the Quorum of the Twelve Apostles, was murdered in Arkansas in May 1857. News of the murder—as well as newspaper reports from the eastern United States that celebrated the crime—reached Utah weeks later. As these events unfolded, Brigham Young declared martial law in the territory, directed missionaries and settlers in outlying areas to return to Utah, and guided preparations to resist the army. Defiant sermons given by President Young and other Church leaders, combined with the impending arrival of an army, helped create an environment of fear and suspicion in Utah.
+
+Emigrant families from Arkansas formed a caravan led by Alexander Fancher and John Baker. As the wagon train traveled through Salt Lake City, the emigrants clashed verbally with local Latter-day Saints over where they could graze their cattle. Some of the members of the wagon train became frustrated because they had difficulty purchasing much-needed grain and other supplies from local settlers, who had been instructed to save their grain as a wartime policy. Aggrieved, some of the emigrants threatened to join incoming troops in fighting against the Saints.
+
+Although some Saints ignored these threats, other local Church leaders and members in Cedar City, Utah, advocated violence. Isaac C. Haight, a stake president and militia leader, sent John D. Lee, a militia major, to lead an attack on the emigrant company. When the president reported the plan to his council, other leaders objected and requested that he call off the attack and instead send an express rider to Brigham Young in Salt Lake City for guidance. But the men Haight had sent to attack the emigrants carried out their plans before they received the order not to attack. The emigrants fought back, and a siege ensued.
+
+Over the next few days, events escalated, and Latter-day Saint militiamen planned and carried out a massacre. They lured the emigrants from their circled wagons with a false flag of truce and, aided by Paiute Indians they had recruited, slaughtered them. Between the first attack and the final slaughter, 120 were killed. The express rider returned two days after the massacre. He carried a letter from Brigham Young telling local leaders to “not meddle” with the emigrants and to allow them to pass through southern Utah in peace. The militiamen sought to cover up the crime by placing the entire blame on local Paiutes, some of whom were also members of the Church.
+
+Two Latter-day Saints were eventually excommunicated from the Church for their participation, and a grand jury that included Latter-day Saints indicted nine men. Only one participant, John D. Lee, was convicted and executed for the crime, which fueled false allegations that the massacre had been ordered by Brigham Young.
+
+In the early 2000s, the Church made diligent efforts to learn everything possible about the massacre. Historians in the Church History Department scoured archives throughout the United States for historical records; every Church record on the massacre was also opened to scrutiny. A resulting book published by Oxford University Press in 2008 by authors Ronald W. Walker, Richard E. Turley Jr., and Glen M. Leonard concluded that while intemperate preaching about outsiders by Brigham Young, George A. Smith, and other leaders contributed to a climate of hostility, Young did not order the massacre. Rather, verbal confrontations between individuals in the wagon train and southern Utah settlers created great alarm, particularly within the context of the Utah War and other adversarial events. A series of tragic decisions by local Church leaders—who also held key civic and militia leadership roles in southern Utah—led to the massacre.
+
+-- [Church History Topics - Mountain Meadows Massacre](https://www.churchofjesuschrist.org/study/history/topics/mountain-meadows-massacre)
+
+<br>
