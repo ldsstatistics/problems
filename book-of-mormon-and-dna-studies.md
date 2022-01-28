@@ -30,7 +30,7 @@ The 2006 update to the introduction of the Book of Mormon reflects this understa
 
 <br>
 
-8 And it came to pass that they did multiply and spread, and did go forth from the land southward to the land northward, and did spread insomuch that **they began to cover the face of the whole earth**, from the sea south to the sea north, from the asea west to the sea east.
+8 And it came to pass that they did multiply and spread, and did go forth from the land southward to the land northward, and did spread insomuch that **they began to cover the face of the whole earth**, from the sea south to the sea north, from the sea west to the sea east.
 
 -- [Helaman 3:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?verses=8#8)
 
@@ -39,5 +39,11 @@ The 2006 update to the introduction of the Book of Mormon reflects this understa
 8 And thus you shall take your journey into the regions westward, **unto the land of Missouri, unto the borders of the Lamanites**.
 
 -- [Doctrine and Covenants 54:8](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/54?verses=8#8)
+
+<br>
+
+The Church asserts that all members are part of the covenant house of Israel either by descent or adoption but **does not take a position on the specific geography of the Book of Mormon or claim complete knowledge about the origins of any specific modern group in the Americas or the Pacific**.
+
+-- [Church History Topics - Lamanite Identity](https://www.churchofjesuschrist.org/study/history/topics/lamanite-identity)
 
 <br>
