@@ -2,7 +2,21 @@
 
 <br>
 
-As a young man during the 1820s, Joseph Smith, like others in his day, **used a seer stone to look for lost objects and buried treasure**. As Joseph grew to understand his prophetic calling, he learned that he could **use this stone for the higher purpose of translating scripture**.
+The other instrument, which Joseph Smith discovered in the ground years before he retrieved the gold plates, was a small oval stone, or “seer stone.” As a young man during the 1820s, Joseph Smith, like others in his day, **used a seer stone to look for lost objects and buried treasure**. As Joseph grew to understand his prophetic calling, he learned that he could use this stone for the higher purpose of translating scripture.
+
+Apparently for convenience, **Joseph often translated with the single seer stone rather than the two stones bound together to form the interpreters**. These two instruments—the interpreters and the seer stone—were apparently interchangeable and worked in much the same way such that, in the course of time, Joseph Smith and his associates often used the term “Urim and Thummim” to refer to the single stone as well as the interpreters.
+
+-- [Gospel Topics Essay - Book of Mormon Translation](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/book-of-mormon-translation)
+
+<br>
+
+Nevertheless, the scribes and others who observed the translation left numerous accounts that give insight into the process. Some accounts indicate that Joseph studied the characters on the plates. Most of the accounts speak of Joseph’s use of the Urim and Thummim (either the interpreters or the seer stone), and **many accounts refer to his use of a single stone**. According to these accounts, **Joseph placed either the interpreters or the seer stone in a hat, pressed his face into the hat to block out extraneous light, and read aloud the English words that appeared on the instrument**.
+
+-- [Gospel Topics Essay - Book of Mormon Translation](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/book-of-mormon-translation)
+
+<br>
+
+Joseph’s wife Emma explained that she “frequently wrote day after day” at a small table in their house in Harmony, Pennsylvania. She described Joseph **“sitting with his face buried in his hat, with the stone in it, and dictating hour after hour with nothing between us.”** According to Emma, the plates **“often lay on the table without any attempt at concealment, wrapped in a small linen table cloth.”**
 
 -- [Gospel Topics Essay - Book of Mormon Translation](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/book-of-mormon-translation)
 
@@ -23,11 +37,5 @@ Joseph Sr. and Josiah Stowell testified that Joseph had responded to requests to
 The outcome of the hearing remains a puzzle. **A purported court record indicates the judge found Joseph guilty.** A neighbor of Josiah Stowell claimed the court “condemned” Joseph but allowed him to escape on account of his youth. A friend of the judge who claimed to have taken notes at the hearing wrote that the judge accepted Stowell’s testimony and discharged Joseph. Oliver Cowdery, who did not attend the hearing (he met Joseph Smith about three years later), mentioned the most likely result in light of missing documentation, that Joseph was acquitted of being a disorderly person.
 
 -- [Joseph Smith’s 1826 Trial](https://www.churchofjesuschrist.org/study/history/topics/joseph-smiths-1826-trial)
-
-<br>
-
-Nevertheless, the scribes and others who observed the translation left numerous accounts that give insight into the process. Some accounts indicate that Joseph studied the characters on the plates. Most of the accounts speak of Joseph’s use of the Urim and Thummim (either the interpreters or the seer stone), and **many accounts refer to his use of a single stone**. According to these accounts, **Joseph placed either the interpreters or the seer stone in a hat, pressed his face into the hat to block out extraneous light, and read aloud the English words that appeared on the instrument**.
-
--- [Gospel Topics Essay - Book of Mormon Translation](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/book-of-mormon-translation)
 
 <br>

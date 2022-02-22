@@ -56,6 +56,12 @@ Emphasis on the similarities between the teaching styles and outward forms of Ma
 
 <br>
 
+Caution: Exercise caution while discussing the doctrine of having our calling and election made sure. Avoid speculation. Use only the sources given here and in the student manual. Do not attempt in any way to discuss or answer questions about the **second anointing**.
+
+-- [Doctrines of the Gospel Teacher Manual Chapter 19: Eternal Life](https://www.churchofjesuschrist.org/study/manual/doctrines-of-the-gospel/chapter-19)
+
+<br>
+
 48 Howbeit the most High dwelleth not in temples made with hands; as saith the prophet,
 
 -- [Acts 7:48](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7?verses=48#48)
